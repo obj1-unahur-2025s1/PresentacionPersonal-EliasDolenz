@@ -13,3 +13,4 @@
 - Mi cable a tierra es hacer deporte, sea hacer futbol con amigos, o gimnasio, y ver películas / anime para descolgar del estres del día a día.
 - Tengo 2 gatos: Delmechon y Micha.
 - Estoy comenzando un emprendimiento para fabricar muebles con diseños y medidas estandar, para poder vender a través de internet.
+- Me gusta la naturaleza: playa, montaña, ríos.
